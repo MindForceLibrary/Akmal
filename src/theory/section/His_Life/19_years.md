@@ -1,0 +1,1 @@
+He create a comprehensive platform when he was 19 years old
